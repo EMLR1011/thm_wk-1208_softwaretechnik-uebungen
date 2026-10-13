@@ -12,3 +12,4 @@ Noch keine: bisher habe ich Software nur benutzt und mich gelegentlich raigebait
 
 - Theoretische Grundlagen vertiefen und in praktischen Aufgaben anwenden.
 - Die Prfüung bestehen xD
+- Viel Spaß am lernen
